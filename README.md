@@ -1,4 +1,4 @@
-I’m Noah Mitchell-Ward (@nmitchellward)
+I’m Noah Mitchell-Ward (@nmitchellward).
 I'm a Master of Environmental Management student at the Yale School of the Environment
 Studying energy and the environment.
 
